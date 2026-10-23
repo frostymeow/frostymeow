@@ -4,11 +4,11 @@ $${\color{#CCD9E2} ALWAYS 　\color{B2C7D4} int \color{#98B4C5}　\color {#7FA1B
 
 
 
-$${\color{#658EA8} W2I　
-\color{#7FA1B7}to 　
-\color{#98B4C5}get 　
-\color{#B2C7D4}my 　
-\color{#CCD9E2}attention}$$
+$${\color{#658EA8} i　
+\color{#7FA1B7}luv 　
+\color{#98B4C5}my　
+\color{#B2C7D4}friendz　
+\color{#CCD9E2}!!}$$
 
 
 
@@ -37,22 +37,22 @@ $${\color{#658EA8} W2I　
  
 $${\color{#CCD9E2}please 
 　
-\color {#B2C7D4}do
+\color {#B2C7D4}look
 　
- \color{#98B4C5}not 
+ \color{#98B4C5}at
 　
-\color{##7FA1B7}copy
+\color{##7FA1B7}my
 　
- \color{#7FA1B7}my 
+ \color{#7FA1B7}strawpage
 　
-\color{#658EA8}skins!}$$
+\color{#658EA8}bfi!}$$
 
-$${\color{#658EA8}socials 
+$${\color{#658EA8}ask
 　
-\color{#7FA1B7}are 
+\color{#7FA1B7}for
 　
-\color{#98B4C5}in 
+\color{#98B4C5}other
 　
-\color{#B2C7D4}strawpage ˎˊ˗}$$
+\color{#B2C7D4}socials ˎˊ˗}$$
 
 $${\color{#90AFC2}✧}$$
