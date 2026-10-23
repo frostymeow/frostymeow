@@ -20,7 +20,7 @@ $${\color{#658EA8} i　
 　　　　　　　　
 　
 　
-　                  󠀠󠀠⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ [ata](https://frostyy.atabook.org/) 　 ⏖
+　                  󠀠󠀠⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀   [ata](https://frostyy.atabook.org/) 　 ⏖
      ⠀[straw](https://https://frostymeow.straw.page)
 　
 　
