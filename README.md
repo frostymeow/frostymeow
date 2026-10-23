@@ -32,9 +32,9 @@ $${\color{#658EA8} i　
 　
 　
 　
-　     [ata](https://frostyy.atabook.org/) 　 ⏖
-　      [straw](https://https://frostymeow.straw.page)
- 
+   　          [ata](https://frostyy.atabook.org/) 　 ⏖
+        　      [straw](https://https://frostymeow.straw.page)
+    
 $${\color{#CCD9E2}please 
 　
 \color {#B2C7D4}look
